@@ -1,7 +1,7 @@
 
 ### MISC.
 
-##### SKATEPARK SEARCH!! (Don't tell the missus ;)
+##### SKATEPARK SEARCH!! (Don't tell the Missus ;)
 * https://www.google.com/search?q=seoul+skateboard+bowl&espv=2&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjByaq6nsDMAhUiLKYKHT0tBVsQ_AUIBygB&biw=1920&bih=965#imgrc=BQubEMASXYcCjM%3A
 * https://www.google.com/search?q=seoul+skateboard+park&espv=2&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiI7uXCncDMAhWDNKYKHbbPBm0Q_AUICCgC&biw=1366&bih=653
 * http://www.skateboard.com.au/skateparks/south-korea/dongdaemun-skatepark/
